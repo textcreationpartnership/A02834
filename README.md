@@ -35,9 +35,47 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A vision of Balaams asse VVherein hee did perfectly see the present estate of the Church of Rome. Wr
+
+1. TO THE KINGS MOST EXCELLENT MAIESTIE.
+
+1. TO THE RIGHT Reuerend Father in God, and honourable Lord GEORGE ABBOTS Lord Archbishop of Canterburie his Grace, Primate and Metropolitane of all England, and one of his MAIESTIES most Honorable Priuy CO•…NSEL.
+
+1. TO THE CHRISTIAN READER.
+
+1. Epigramma ad Regem.
+
+1. ❧ The Contents of the seuerall Chapters wherein this Treatise is diuided.
+
 #####Body#####
-A vision of Balaams asse VVherein hee did perfectly see the present estate of the Church of Rome. Wr
+
+1. A VISION OF BALAAMS ASSE. VVherein he did perfectly see the present estate of the Church of ROME.
+
+1. CHAP. II.
+
+1. CHAP. III.
+
+1. CHAP. IIII.
+
+1. CHAP. V.
+
+1. CHAP. VI.
+
+1. CHAP. VII.
+
+1. CHAP. VIII.
+
+1. CHAP. IX.
+
+1. CHAP. X.
+
+1. CHAP. XI.
+
+1. CHAP. XI.
+
+1. CHAP. XIII.
+
+1. CHAP. XIV.
+
 **Types of content**
 
   * There are 35 **verse** lines!
